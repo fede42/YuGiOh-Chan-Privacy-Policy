@@ -1,0 +1,1 @@
+# YuGiOh-Chan-Privacy-Policy
